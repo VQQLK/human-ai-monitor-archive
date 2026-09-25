@@ -51,4 +51,4 @@ Generated every **Friday 13:45 UTC** (current week, 5 days).
 
 **United We Stand!** 🚀🌍🏆
 
-**我们在起 - 就很强大！**
+**我们在一起，就是力量！**
